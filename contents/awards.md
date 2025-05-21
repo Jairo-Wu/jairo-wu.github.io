@@ -1,13 +1,30 @@
-- National Scholarship of Graduate Student, 2024.
 
-- First-prize Scholarship of CUMT, 2024.
+- 河北省优秀毕业生（2025年）
 
-- First-prize Scholarship of CUMT, 2023.
+- 河北大学研究生优秀毕业生（2025年）
 
-- Freshman Scholarship of CUMT, 2022.
+- 河北大学三好学生（2024、2019年）
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- 河北大学科研成果先进个人（2024年）
 
-- First-prize Enterprise Scholarship of CUMT, 2020.
+- 河北大学研究生二等奖学金（2024、2022年）
 
-- First-prize Scholarship of CUMT, 2019.
+- 河北大学优秀学生干部（2024、2023、2020、2019、2018年）
+
+- 河北大学优秀共青团员（2024年）
+
+- 河北省高校网络安全攻防演习三等奖（2023年）
+
+- 河北大学研究生三等奖学金（2023年）
+
+- 河北大学优秀共青团干部（2023、2020、2019、2018年）
+
+- 国家级大学生创新创业训练计划项目优秀奖（2020年）
+
+- 河北省“冀青之星”称号（2019年）
+
+- 河北大学一等奖学金（2019年）
+
+- 河北大学暑期社会实践先进个人（2019、2018年）
+
+- 河北大学二等奖学金（2018年）
